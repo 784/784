@@ -3,7 +3,7 @@
 
 >I'm 15, from Canada. 🇨🇦
 
->I'm currently trying to learn Python! You can reach me at Penderdrill@protonmail.com.
+>I'm currently trying to learn Python! You can reach me at Penderdrill@protonmail.com or by Penderdrill#0691 on Discord.
 
 
 
