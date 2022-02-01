@@ -1,9 +1,2 @@
-# Penderdrill
-> Hi, I'm Penderdrill! I'm mostly using my Github for my config files.
-
->I'm 15, from Canada. 🇨🇦
-
->You can reach me at Penderdrill@protonmail.com.
-
-
+![alt text](https://cdn.discordapp.com/attachments/937503792897871912/937796638439768094/penderdrillbg.png)
 
